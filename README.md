@@ -1,4 +1,5 @@
 # Melia-B.P.---BUS-314
+Melia Belmes-Picache
 About me:
 I am an MIS Junior major but currently I am unsure what career path I want to go with it. I work at a Texas style BBQ restaurant right now, which taught me to multitask and handle different POS systems and how to handle a fast-paced environment. During my down time I like to go out with my friends and travel. 
  Career Aspirations
